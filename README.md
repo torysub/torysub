@@ -1,4 +1,4 @@
-**Hi, I’m Yuliya. Welcome To My GitHub Profile !**
+**Hi, I’m Viktoriya. Welcome To My GitHub Profile !**
 
 👩‍🎓I am currently studying at a software testing course with Vadim Ksenzov.
 

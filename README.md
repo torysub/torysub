@@ -2,4 +2,4 @@
 
 👩‍🎓I am currently studying at a software testing course with Vadim Ksendzov
 
-✉Contact me: vikabasya20@mail.ru
+✉Contact me: https://t.me/tory_sub
